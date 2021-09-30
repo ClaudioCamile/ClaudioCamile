@@ -8,4 +8,10 @@ We all painting our way in life while listening to the sounds of our roots that 
 
 I'm a web developer for many years now and discovered that we can paint with words, with acrylic or oil, with zeros & ones - our possibilities are infinite, I have this friend of mine that painting with his Chinese needles on his patients body, drawing their ch’i on the slopes and ascents of their meridians while the energy of life rejuvenate them and blossom renewal in them, another friend of mine does exactly the same thing in his car & yacht shop, all that makes me fills that when the spirit of creativity pulsates in a person's veins and plays this melody in him, he can make his world and ours to a better, more pleasant, and closer world to the drawing board with no relevant what he painting and what his tools are.
 
-you can 📫 me at camileclaudio@gmail.com
+
+So I decided to enjoy painting my code, 
+probably I can paint yours too, 
+you can 📫 me at camileclaudio@gmail.com, 
+
+anyways - have a 🏝 time.
+
